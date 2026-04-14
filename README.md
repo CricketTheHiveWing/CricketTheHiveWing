@@ -22,9 +22,7 @@ Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Ca
 
 ☆ Cricket Fictionkin ☆
 
-Idk what else to put here but if you wanna know more abt me you must talk get to know me ok byeee
-
-![Screenshot_20260412_174936_Chrome](https://github.com/user-attachments/assets/a48a4487-1408-4f1f-aacc-837466496997)
+Idk what else to put here but if you wanna know more abt me I recommend talking to me cus I'm not putting EVERYTHING here ok byebye
 
 
 
