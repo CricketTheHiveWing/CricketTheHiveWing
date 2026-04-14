@@ -21,7 +21,7 @@ Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Ca
 
 I'm kinda forgetful so don't be shocked by frequent forgetfulness
 
-` My comfort characters are Devesto,BrightHeart and Bobo ,,
+My comfort characters are Devesto,BrightHeart and Bobo ! :D
 
 🐝🐈🐲🦋 ~ I love cats,bees,dragons and moths !
 
