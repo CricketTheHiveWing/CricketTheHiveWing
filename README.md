@@ -1,5 +1,6 @@
 ![Screenshot_20260414_113345_Google](https://github.com/user-attachments/assets/95f58c41-e28e-4a18-a184-f63a5faeb848)
 
+" It's no use knowing the trust if everyone else believes the lies ."
 
 .
 
