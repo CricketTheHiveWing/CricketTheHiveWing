@@ -18,7 +18,7 @@
 
 Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go .
 
-dnc my skins unless it's gifted or I allow it .
+Dnc my skins unless it's gifted or I allow it .
 
 ☆ Cricket Fictionkin ☆
 
