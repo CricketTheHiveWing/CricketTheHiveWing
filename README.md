@@ -20,7 +20,7 @@ Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Ca
 
 I LOVE reading and learning and science is my profession but I have bad memory so don't be shocked if I accidentally forget things alot .
 
-💝 ` My comfort characters are Devesto,BrightHeart and Bobo ,,
+` My comfort characters are Devesto,BrightHeart and Bobo ,,
 
 🐝🐈🐲🦋 ~ I love cats,bees,dragons and moths .
 
