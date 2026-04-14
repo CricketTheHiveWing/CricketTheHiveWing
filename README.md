@@ -12,7 +12,7 @@
 
 🐝
 
-[Dni] : Proshippers,MAP,below 14 y.o or above 25,WEIRD yumeshippers,or are known for being problematic and not planning on changing
+[Dni] : Proshippers,MAP,below 14 y.o or above 25,WEIRD yumeshippers,or are known for being problematic
 
 [Int] : Everyone can unless in my dni list or I'm upset (Except friends plus I very rarely get upset)
 
