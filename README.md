@@ -16,7 +16,7 @@
 
 [Int] : Everyone can unless in my dni list or I'm upset (Except friends plus I very rarely get upset)
 
-Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go .
+Fandoms I'm in : Die of Death,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go .
 
 Dnc my skins unless it's gifted or I allow it .
 
