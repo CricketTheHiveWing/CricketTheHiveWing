@@ -14,7 +14,7 @@
 
 [Dni] : Proshippers,MAP,below 14 y.o or above 25,WEIRD yumeshippers,or are known for being problematic
 
-[Int] : Everyone can unless in my dni list or I'm upset (Except friends plus I very rarely get upset)
+[Int] : Everyone can unless in my dni list 
 
 Fandoms I'm in : Die of Death,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go .
 
