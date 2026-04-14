@@ -16,13 +16,13 @@
 
 [Int] : Everyone can unless in my dni list or I'm clearly upset (Which I VERY RARELY am)
 
-Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go AND MAYBE EVEN MORE
+Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go .
 
-!! DNC my skins unless it's gifted
+dnc my skins unless it's gifted or I allow it .
 
 ☆ Cricket Fictionkin ☆
 
-Idk what else to put here but if you wanna know more abt me I recommend talking to me cus I'm not putting EVERYTHING here ok byebye
+Idk what else to put here but if you wanna know more abt me I recommend talking to me cus I'm not putting EVERYTHING here ok byebye !
 
 
 
