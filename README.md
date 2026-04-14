@@ -12,7 +12,7 @@
 
 [Int] : Everyone can unless in my dni list or I'm clearly upset (Which I VERY RARELY am)
 
-Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go AND MAYBE EVEN MORE .
+Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Cats,Bad Things and Let Him Go AND MAYBE EVEN MORE
 
 !! DNC my skins unless it's gifted
 
